@@ -16,5 +16,5 @@ Check out my work here: https://tywenkelly.com/
 
 ---
 
-Twitter [@tywenk](https://twitter.com/tywenk) Insta: [@tywensnotes](https://www.instagram.com/tywensnotes/) Email: tywen.kelly@gmail.com
+Twitter [@tywenk](https://twitter.com/tywenk) | Insta: [@tywensnotes](https://www.instagram.com/tywensnotes/) | Email: tywen.kelly@gmail.com
 
