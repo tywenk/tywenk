@@ -1,16 +1,20 @@
-### Hi there 👋
+  ### Tywen Kelly 🌱
 
-<!--
-**tywenk/tywenk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am an artist and software developer.
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+A few of my favorites quotes: 
+* Gardening, not architecture. 
+* Ethusiasm is worth 25 IQ points.
+* Information wants to be free, and expensive.
+* Time exists in order that everything doesn’t happen all at once… and space exists so that it doesn’t all happen to you.
+
+---
+
+Check out my work here: https://tywenkelly.com/
+
+---
+
+Twitter [@tywenk](https://twitter.com/tywenk) Insta: [@tywensnotes](https://www.instagram.com/tywensnotes/) Email: tywen.kelly@gmail.com
+
